@@ -31,7 +31,8 @@ Join the Centic Incentive Program to earn rewards and convert them into $CTI tok
 ## 🔗 Links  
 - [Program Registration](https://centic.io/quests/daily?refferalCode=eJwFwYEBABAMA7CXqszmHNO5wfkSvIauptCYKpYH15bdLKqTx2E5QQ98_YILYg==)  
 - [Learn More About Centic](https://centic.io/quests/daily?refferalCode=eJwFwYEBABAMA7CXqszmHNO5wfkSvIauptCYKpYH15bdLKqTx2E5QQ98_YILYg==)
+💡 **Start now and maximize your rewards!**
 
 ![photo_2024-12-28_07-34-34](https://github.com/user-attachments/assets/b7a5e387-4a63-455a-9c5e-31c98e8a9d10)
 
-💡 **Start now and maximize your rewards!**
+
